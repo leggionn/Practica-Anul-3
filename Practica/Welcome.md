@@ -1,0 +1,1 @@
+Acesta este începutul practicii mele din anul 3. După ce din greșeală am șters Vault-ul trecut, unde și am scris totul, voi fi nevoit să rescriu totul din nou.
